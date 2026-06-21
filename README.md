@@ -14,6 +14,6 @@
 <p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
 <p align="center">
  https://github.com/user-attachments/assets/355ef3eb-11ce-42e7-9cfe-d5c646cad8a4
-<p align="center">
+</p>
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=love-web-electrical)
 
