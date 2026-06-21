@@ -13,9 +13,6 @@
   <p align="center"> HAHAAA FUNNY NUMBERS FUN- i am then killed on sight in a mist of blood </p>
 <p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
 
- 
-https://github.com/user-attachments/assets/84a532fa-8487-486b-85ce-c49a3022e279
-
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=love-web-electrical)
 
