@@ -9,7 +9,8 @@
 <p align="center"> 19y. Jane Ives coping link. Selective nonverbal depending which Jane i am </p>
 <p align="center"> <img src="https://files.catbox.moe/0ge36r.png" alt="Alt Text" width="210" height="110">
  <p align="center"> <img src="https://files.catbox.moe/m70b72.png" alt="Alt Text" width="110" height="99">
-  <p align="center"> HAHAAA FUNNY NUMBER FUN- i am then killed on sight in a mist of blood </p>
+   <p align="center"> <img src="https://files.catbox.moe/rwlcz1.png" alt="Alt Text" width="110" height="99">
+  <p align="center"> HAHAAA FUNNY NUMBERS FUN- i am then killed on sight in a mist of blood </p>
 <p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
  
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=love-web-electrical)
