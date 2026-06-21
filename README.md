@@ -12,8 +12,8 @@
  <p align="center"> <img src="https://files.catbox.moe/m70b72.png" alt="Alt Text" width="200" height="80">
   <p align="center"> HAHAAA FUNNY NUMBERS FUN- i am then killed on sight in a mist of blood </p>
 <p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
-
+<p align="center">
  https://github.com/user-attachments/assets/355ef3eb-11ce-42e7-9cfe-d5c646cad8a4
-
+<p align="center">
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=love-web-electrical)
 
