@@ -1,16 +1,12 @@
-## Hi there 👋
+<p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
+<p align="center"> <img src="https://files.catbox.moe/5slujb.jpg" alt="Alt Text" width="410" height="299">
+<p align="center"> under construction, come back later! </p>
+<p align="center"> c+h ✓ w2rp ✓ frequently offtab, w2i ok? yay! </p>
+<p align="center"> always offline. I did not unfriend you..! </p>
+<p align="center"> Jane or ladybird </p>
+<p align="center"> i have anxiety, autism and compound grief. i'm also told i can be forgetful, and repeat myself. </p>
+<p align="center"> 19y. Jane Ives coping link. I am also Kali sometimes. Selective nonverbal depending which Jane i am </p>
+<p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
 
-<!--
-**love-web-electrical/love-web-electrical** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=love-web-electrical)
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
