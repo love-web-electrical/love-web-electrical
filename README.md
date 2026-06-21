@@ -1,5 +1,5 @@
 <p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
-<p align="center"> <img src="https://files.catbox.moe/5gr1a9.gif" alt="Alt Text" width="410" height="299">
+<p align="center"> <img src="https://files.catbox.moe/5gr1a9.gif" alt="Alt Text" width="210" height="299">
 <p align="center"> under construction, come back later! </p>
 <p align="center"> c+h ✓ w2rp ✓ frequently offtab, w2i ok? yay! </p>
 <p align="center"> always offline. I did not unfriend you..! </p>
