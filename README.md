@@ -9,6 +9,7 @@
 <p I'm usually awake at really weird hours. trouble sleeping so i am usually available kind of</p>
 <p align="center"> 19y. Jane Ives coping link. Selective nonverbal depending which Jane i am </p>
 <p align="center"> uhh basic dni and. Billy Hargrove fans, Nikki Baxter + Kali Prasad haters specifically fandomwise go away forever</p>
+<p align="center"> don't mention these around me pleas ever. : parental death, frostbite+hypothermia, jaundice, religion, internal bleeding, pneumonia, hospitals, heavy drug use and drug use in general </p>
 <p align="center"> <img src="https://files.catbox.moe/0ge36r.png" alt="Alt Text" width="210" height="110">
     <p align="center"> <img src="https://files.catbox.moe/rwlcz1.png" alt="Alt Text" width="200" height="80">
  <p align="center"> <img src="https://files.catbox.moe/m70b72.png" alt="Alt Text" width="200" height="80">
