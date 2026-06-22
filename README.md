@@ -13,7 +13,7 @@
 <p align="center"> <img src="https://files.catbox.moe/0ge36r.png" alt="Alt Text" width="210" height="110">
     <p align="center"> <img src="https://files.catbox.moe/rwlcz1.png" alt="Alt Text" width="200" height="80">
  <p align="center"> <img src="https://files.catbox.moe/m70b72.png" alt="Alt Text" width="200" height="80">
-  <p align="center"> HAHAAA FUNNY NUMBERS FUN- i am then killed on sight in a mist of blood </p>
+  <p align="center"> haha hey. look at those numb- i am then killed on sight in a mist of blood </p>
 <p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
 
  https://github.com/user-attachments/assets/355ef3eb-11ce-42e7-9cfe-d5c646cad8a4
