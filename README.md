@@ -15,7 +15,7 @@
  <p align="center"> <img src="https://files.catbox.moe/m70b72.png" alt="Alt Text" width="200" height="80">
   <p align="center"> haha hey. look at those numb- i am then killed on sight in a mist of blood </p>
   <p align="center"> <img src="https://files.catbox.moe/6jouv3.png" alt="Alt Text" width="287" height="221">
-<p align="center"> <img src="https://files.catbox.moe/pmez49.jpg" alt="Alt Text" width="400" height="80">
+<p align="center"> <img src="https://files.catbox.moe/pmez49.jpg" alt="Alt Text" width="310" height="299">
 
  https://github.com/user-attachments/assets/355ef3eb-11ce-42e7-9cfe-d5c646cad8a4
 
