@@ -13,6 +13,7 @@
 <p align="center"> <img src="https://files.catbox.moe/0ge36r.png" alt="Alt Text" width="210" height="110">
     <p align="center"> <img src="https://files.catbox.moe/rwlcz1.png" alt="Alt Text" width="200" height="80">
  <p align="center"> <img src="https://files.catbox.moe/m70b72.png" alt="Alt Text" width="200" height="80">
+   <p align="center"> <img src="https://files.catbox.moe/k267oa.png" alt="Alt Text" width="200" height="80">
   <p align="center"> haha hey. look at those numb- i am then killed on sight in a mist of blood </p>
   
 <p align="center"> <img src="https://files.catbox.moe/pmez49.jpg" alt="Alt Text" width="320" height="299">
