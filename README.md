@@ -5,7 +5,7 @@
 <p align="center"> <img src="https://files.catbox.moe/6jouv3.png" alt="Alt Text" width="287" height="221">
  <p align="center"> Jane or Ladybird. Do not call me El/Eleven. Not my name. </p>
   <p align="center"> always offline. I did not unfriend you! </p>
-<p align="center"> i have anxiety, autism and compounded grief. i'm also told i can be forgetful, and repeat myself. YOU'RE 001 OF THEM skin is my OWM inspired jane from my comic i might. never post. shes cool sometimes </p>
+<p align="center"> i have anxiety, autism and compounded grief. i'm also told i can be forgetful, and repeat myself. </p>
 
 <p align="center"> 19y. Jane Ives coping link. Selective nonverbal depending which Jane i am. s1+s2 less likely to talk specifically. I'm frequently skittish around other ST skins other than my friends, sorry!</p>
 <p align="center"> uhh basic dni. be sensible and. Billy Hargrove fans, Nikki Baxter + Kali Prasad haters specifically fandomwise go away forever</p>
