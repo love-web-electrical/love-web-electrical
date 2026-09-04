@@ -11,7 +11,7 @@
 
 <p align="center"> uhh basic dni. be sensible and. Billy Hargrove fans, Nikki Baxter + Kali Prasad haters specifically fandomwise go away forever</p>
 <p align="center"> don't mention these around me plea: parental death, frostbite+hypothermia, jaundice, religion, internal bleeding, pneumonia, hospitals, heavy drug use and drug use in general. ok? yay </p>
-<p align="center"> <img src="https://files.catbox.moe/rww99u.png" alt="Alt Text" width="710" height="299">
+<p align="center"> <img src="https://files.catbox.moe/dhnhpp.png" alt="Alt Text" width="710" height="299">
  <p align="center"> <img src="https://files.catbox.moe/rwlcz1.png" alt="Alt Text" width="200" height="80">
 <p align="center"> <img src="https://files.catbox.moe/m70b72.png" alt="Alt Text" width="200" height="80">
 <p align="center"> <img src="https://files.catbox.moe/k267oa.png" alt="Alt Text" width="200" height="80">
