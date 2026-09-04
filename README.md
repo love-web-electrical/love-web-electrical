@@ -1,7 +1,8 @@
 <p align="center"> <img src="https://files.catbox.moe/62gd3p.png" alt="Alt Text" width="400" height="80">
-<p align="center"> <img src="https://files.catbox.moe/5gr1a9.gif" alt="Alt Text" width="310" height="299">
-<p align="center"> c+h ✓ w2rp ✓ frequently offtab, w2i ok? yay! </p>
+ <p align="center"> c+h ✓ w2rp ✓ frequently offtab, w2i ok? yay! </p>
 <p align="center">usually up at weird hours so i'm maybe available but i'm usually drawing offtab </p>
+<p align="center"> <img src="https://files.catbox.moe/5gr1a9.gif" alt="Alt Text" width="310" height="299">
+ 
 <p align="center"> <img src="https://files.catbox.moe/qsner5.png" alt="Alt Text" width="287" height="261">
  <p align="center"> Jane/Rebar-Impalement/Juneteenth. Do not call me El/Eleven. Not my name. </p>
  <p align="center"> 19y. Jane Ives coping link. I'm frequently skittish around other ST skins other than my friends ok</p>
