@@ -3,7 +3,7 @@
 <p align="center"> c+h ✓ w2rp ✓ frequently offtab, w2i ok? yay! </p>
 <p align="center">usually up at weird hours so i'm maybe available but i'm usually drawing offtab </p>
 <p align="center"> <img src="https://files.catbox.moe/6jouv3.png" alt="Alt Text" width="287" height="221">
- <p align="center"> Jane or Ladybird. Do not call me El/Eleven. Not my name. </p>
+ <p align="center"> Jane/Rebar-Impalement/Juneteenth. Do not call me El/Eleven. Not my name. </p>
   <p align="center"> always offline. I did not unfriend you! </p>
 <p align="center"> i have anxiety, autism and compounded grief. i'm also told i can be forgetful, and repeat myself. </p>
 
